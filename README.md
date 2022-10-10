@@ -5,3 +5,5 @@ Helping students by providing free Navodaya Exam preparation content. We provide
 We provide 100% genuine content to our students. All announcements are official announcements by respective exam conducting boards.
 
 We provide quick update after any official update of Navodaya Samiti through a YouTube video. We also provide weekly/mothly learning videos.
+
+Our team is always there to help you out. You can ask for any kind of help from our experts.
